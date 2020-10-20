@@ -1,0 +1,1 @@
+this recipie is all about cooking dal which is too healthy for vegetarians and cointains a lot of protien which is very good for staying healthy

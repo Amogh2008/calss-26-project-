@@ -1,0 +1,1 @@
+first take some dal and add it to the cooker and then add some water and let it boil after some time add tomatoes and spices and wait till it cooks ....... and then your dal is ready to be served.
